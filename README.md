@@ -18,4 +18,4 @@
 
 [twitter]: https://twitter.com/Miz_Meka
 [instagram]: https://www.instagram.com/miz_meekz
-[linkedin]: https://linkedin.com/in/Tameka
+[linkedin]: https://linkedin.com/in/Tameka-ivory-mba
